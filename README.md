@@ -1,0 +1,1 @@
+# Lean-six-sigma-case-study--Gentech
